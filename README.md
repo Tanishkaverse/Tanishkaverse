@@ -35,7 +35,7 @@ Goals
 • Pursue Computer Science Engineering  
 
 ✨ Contact with me: 
-linkdin : https://www.linkedin.com/in/tanishka-shinde
+linkedin : https://www.linkedin.com/in/tanishka-shinde
 
 
 Thanks for visiting my profile 📸
